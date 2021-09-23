@@ -12,7 +12,7 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1.
+1. Marek Lichvár
 2. Vladimír Ačjak
 3.
 4.
