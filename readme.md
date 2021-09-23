@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Marek Lichvár
 2. Vladimír Ačjak
 3. Zuzana Mačicová
-4.
+4. Richard Mištík
 
